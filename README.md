@@ -1,0 +1,2 @@
+# mihsigma.github.io
+vocabulary
